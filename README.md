@@ -1,0 +1,1 @@
+Bu bölümde proje detayları yer alır.
